@@ -58,8 +58,9 @@ The recipe here is my personal adaptation of "Quick Pizza Dough" by Karsten Mora
   - Don't worry about making it a pretty shape, all that matters is that the shape you end up with will fit on your baking stone.
 6. **Add your toppings!**
   - Try to be moderate with any wet toppings (sauce, fresh mozzarella, etc) or you may find that the dough cooks up soggy in the middle. It'll still be delicious, but the texture will suffer.
-7. **Use your pizza peel or a baking tray to put your pizza and parchment paper into the oven. Depending on your oven's temperature, you'll likely need to let it cook between 5-10 minutes.**
-  - You'll have to use your best judgement about when to pull the pizza out. You're looking for a combination of a visibly-cooked crust (golden, solid, dry but not burnt) and well-prepped ingredients (melted cheese, rendered juices, etc).
-  - Using a baking stone is helpful because it means that the bottom of the pizza will be thoroughly cooked and adds direct heat to your pizza rather than just the ambient heat in the oven's air. You'll get a better crust texture with a baking stone.
+7. **Make sure your oven is preheated to the highest temperature it can handle. Use your pizza peel or a baking tray to put your pizza and parchment paper into the oven. Depending on your oven's temperature, you'll likely need to let it cook between 5-10 minutes.**
+  - You'll have to use your best judgement about when to pull the pizza out. You're looking for a combination of a visibly-cooked crust (golden, crusty but not burnt) and well-prepped ingredients (melted cheese, rendered juices, etc).
+  - Using a baking stone is helpful because it means that the bottom of the pizza will be thoroughly cooked and adds direct heat to your pizza rather than just the ambient heat in the oven's air. You'll get a better crust texture with a baking stone. Otherwise, you can set your parchment paper directly onto an over rack or baking sheet.
+  - Using a pizza peel to get the pizza into and out of the oven is helpful for safe and convenient handling.
   - The parchment paper may brown or char a bit on the edges, and that's ok. Using the parchment paper means your crust won't stick at all to the baking stone or oven, and if any ingredients bubble off the edge of the crust your oven won't get dirty.
 8. **Remove the pizza from the oven and let it cool on the parchment paper for 5 minutes or so before you dig in.**
